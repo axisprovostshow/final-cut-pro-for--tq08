@@ -1,4 +1,4 @@
-# 
+# Enhance Final Cut Pro for macOS with best Final Cut Pro for macOS Extension | multi-cam-editing + collaboration-tools, the #1 extension. Includes multi-cam-editing and
 
 
 
